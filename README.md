@@ -1,2 +1,2 @@
 # bongsic
-bongsic is puppy
+bongsic is my puppy
